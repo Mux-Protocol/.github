@@ -10,7 +10,11 @@ Empower developers and users to interact with Stellar accounts effortlessly, rem
 
 
 Community
+
 Discord: Coming soon
+
 Telegram: Coming soon
+
 Twitter/X: Coming soon
+
 Email: divinekhalil34@gmail.com
